@@ -1,0 +1,1 @@
+# PeopleCert-IASSC-Lean-Six-Sigma---Green-Belt-19-Dumps
